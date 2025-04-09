@@ -8,7 +8,7 @@
 Yeh woh basti hai jahan raat ke sannatein mein,  
 **izzat-o-nafs** ko neelam kiya jaata hai.  
 
-Is jagah bikte hain insaan bhi sikkon ke waj se,  
+Is jagah bikte hain insaan bhi sikkon ke waj,  
 is jagah pyaar ko badnaam kiya jaata hai.  
 
 Is jagah **zulm-o-hanaaqat** ke siwa kuch bhi nahi,  
@@ -38,7 +38,7 @@ goonjti rehti hai — mamta bhari lori ki tarah.
 ये वो बस्ती है जहाँ रात के सन्नाटे में  
 **इज़्ज़त-ओ-नफ़्स** को नीलाम किया जाता है।  
 
-इस जगह बिकते हैं इंसान भी **सिक्कों के वज्ज** से,  
+इस जगह बिकते हैं इंसान भी **सिक्कों के वज**,  
 इस जगह प्यार को बदनाम किया जाता है।  
 
 इस जगह **ज़ुल्म-ओ-हमाक़त** के सिवा कुछ भी नहीं,  
