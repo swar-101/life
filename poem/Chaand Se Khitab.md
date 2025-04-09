@@ -6,7 +6,7 @@
 *Jaa kahin aur chala jaa, ke yeh basti tere qaabil hi nahi.*  
 
 Yeh woh basti hai jahan raat ke sannatein mein,  
-**izzat-o-nafs** ko neelam kiya jaata hai.  
+**izzat-o-nafs** ko neelaam kiya jaata hai.  
 
 Is jagah bikte hain insaan bhi sikkon ke waj,  
 is jagah pyaar ko badnaam kiya jaata hai.  
@@ -14,9 +14,9 @@ is jagah pyaar ko badnaam kiya jaata hai.
 Is jagah **zulm-o-hanaaqat** ke siwa kuch bhi nahi,  
 is jagah **karb-o-azihat** ke siwa kuch bhi nahi.  
 
-Is jagah **muflis-o-naadaar**, **bilakhte hue bachche**,  
+Is jagah **muflis-o-naadaar**, **bilakhte bachche**,  
 jinke kaanon mein **ladaqpan se jawaan hone tak**,  
-**kaarkhaanon ki bhaari machineon ki sanaah**  
+**kaarkhaanon mein lagi bhaari machineon ki sanaah**  
 goonjti rehti hai — mamta bhari lori ki tarah.  
 
 **Chaand**, ae raat ke sehra mein bhatakte hue **Chaand**,  
@@ -33,20 +33,20 @@ goonjti rehti hai — mamta bhari lori ki tarah.
 <div align="center">
 
 **चाँद**, ऐ रात के सहरा में भटकते हुए **चाँद**  
-*जा कहीं और चला जा, कि ये बस्ती तेरे क़ाबिल ही नहीं।*  
+*जा कहीं और चला जा, कि ये बस्ती तेरे काबिल ही नहीं।*  
 
-ये वो बस्ती है जहाँ रात के सन्नाटे में  
+ये वो बस्ती है जहाँ रात के सन्नाटे में,  
 **इज़्ज़त-ओ-नफ़्स** को नीलाम किया जाता है।  
 
 इस जगह बिकते हैं इंसान भी **सिक्कों के वज**,  
 इस जगह प्यार को बदनाम किया जाता है।  
 
-इस जगह **ज़ुल्म-ओ-हमाक़त** के सिवा कुछ भी नहीं,  
+इस जगह **ज़ुल्म-ओ-हनाक़त** के सिवा कुछ भी नहीं,  
 इस जगह **कर्ब-ओ-अज़ीयत** के सिवा कुछ भी नहीं।  
 
-इस जगह **मुफ़्लिस-ओ-नादार**, **बिलखते हुए बच्चे**,  
-जिनके कानों में **लड़कपन से जवाँ होने तक**,  
-**कारखानों की भारी मशीनों की सना**  
+इस जगह **मुफ़्लिस-ओ-नादार**, **बिलखते बच्चे**,  
+जिनके कानों में **लड़कपन से जवान होने तक**,  
+**कारखानों में लगी भारी मशीनों की सना**  
 गूँजती रहती है — ममता भरी लोरी की तरह।  
 
 **चाँद**, ऐ रात के सहरा में भटकते हुए **चाँद**,  
