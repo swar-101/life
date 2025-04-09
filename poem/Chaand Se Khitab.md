@@ -20,7 +20,7 @@ jinke kaanon mein **ladaqpan se jawaan hone tak**,
 goonjti rehti hai — mamta bhari lori ki tarah.  
 
 **Chaand, ae raat ke sehra mein bhatakte hue chaand**  
-*Jaa kahi aur chala jaa, tu meri basti se.*  
+*Jaa kahi aur chala jaa tu meri basti se.*  
 
 </div>
 
